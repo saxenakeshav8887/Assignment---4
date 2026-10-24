@@ -28,6 +28,3 @@ index.html
 </body>
 </html>
 
-Assignment-5
-
-difjrjgjdkskfmggkdkmgkxmfmckdmtjldmcjtnfjdngk veg bc css Thankss Karen Karen kitchen munee minus palms ma la la
